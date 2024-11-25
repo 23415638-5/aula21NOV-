@@ -1,0 +1,2 @@
+# aula21NOV-
+EXEMPLIFICARIC A
